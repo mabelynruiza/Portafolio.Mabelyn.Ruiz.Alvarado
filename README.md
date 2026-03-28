@@ -1,7 +1,6 @@
 👩‍💻 Mabelyn Ruiz Alvarado - Analista de Soporte Técnico y Automatización de Procesos
 
 📌 Sobre mí
-
 Profesional orientada a la mejora de procesos administrativos mediante herramientas tecnológicas. 
 Interesada en automatización, soporte técnico y desarrollo de soluciones digitales para empresas.
 
